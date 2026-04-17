@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Donuts-dev
+- 👋 Hi, I’m @Doneot
 - 👀 I’m interested in IT an animes
 - 🌱 I’m currently learning many things
 - 💞️ I’m looking to collaborate on nothing
